@@ -1,0 +1,3 @@
+Slava's logo
+-----
+
